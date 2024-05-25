@@ -8,7 +8,7 @@
 	<p align="center">
 	<img src="https://win98icons.alexmeub.com/icons/png/msg_information-2.png"> Hello! I hope you're having a good day!</font> Welcome to my profile! <br> 
 		<img src="https://64.media.tumblr.com/20df0aad45340ef668601aa1b40178f5/423d3293741dba1e-0f/s400x600/a026613aa86931924b6b68472ae5770643f93ea3.gifv"><br>
-	<img src="https://win98icons.alexmeub.com/icons/png/msg_information-2.png"> Carrd Links (Has more information + looks better LOL) <br> <a href="https://anxxcid-nvoewidfnb.crd.co/#"><strong>Main Carrd (98 style)</strong></a><br><a href="https://anxxcid-nvoewidfnb-dos.crd.co/"><strong style="color: purple">DOS Style Carrd</strong></a><br> <img src="https://win98icons.alexmeub.com/icons/png/msg_warning-2.png"> Note for DOS version: There is a purposeful delay in text to re-create a DOS start up,<br>please wait a few seconds for the page to be entirely loaded! Thanks!<br>
+	<img src="https://win98icons.alexmeub.com/icons/png/msg_information-2.png"> Carrd Link (Has more information + looks better LOL) <br> <a href="https://anxxcid-nvoewidfnb.crd.co/#(https://anxxcidd.carrd.co/#)"><strong>Carrd</strong></a><br>
 	<img src="https://64.media.tumblr.com/20df0aad45340ef668601aa1b40178f5/423d3293741dba1e-0f/s400x600/a026613aa86931924b6b68472ae5770643f93ea3.gifv"><br>
   <br>
 	:*¨༺ ★ ༻¨*:  <img src="https://win98icons.alexmeub.com/icons/png/msg_information-2.png"> Some info about me! :*¨༺ ★ ༻¨*:<br>
