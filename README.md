@@ -13,7 +13,7 @@
   <br>
 	:*¨༺ ★ ༻¨*:  <img src="https://win98icons.alexmeub.com/icons/png/msg_information-2.png"> Some info about me! :*¨༺ ★ ༻¨*:<br>
 	---<br>
-	<img src="https://win98icons.alexmeub.com/icons/png/directory_open_file_mydocs_small-1.png"> Some games/shows that I like are: CRK, CROB, MLP, FNaF, Animal Jam, and Town of Salem (ToS) 1 & 2<br>
+	<img src="https://win98icons.alexmeub.com/icons/png/directory_open_file_mydocs_small-1.png"> Some games/shows that I like are: MLP, FNaF, DSaF, Animal Jam, and Town of Salem (ToS) 1 & 2<br>
 	<img src="https://win98icons.alexmeub.com/icons/png/directory_open_cabinet-0.png"> I also like drawing.. and Dr Pepper!! <img src="https://www.italiangourmetuk.co.uk/cdn/shop/products/DP_Regular_12oz_Can_Wet.png?v=1680179164&width=480" style="width: 10px;"> <br>
 	<img src="https://win98icons.alexmeub.com/icons/png/check-1.png"> Feel free to interact with me in the game, I'm always up to chat! (Unless I have do not disturb status)<br>
 	--<br>
